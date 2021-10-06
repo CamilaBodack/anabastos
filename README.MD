@@ -31,4 +31,8 @@ Hi, I'm Ana 👩‍💻.
 |2021-06-23
 | https://i2.paste.pics/CXGY6.png
 | sdds, Aninha! ❤️
-|-- nic>
+|-- nic
+|2021-10-06
+| Adorei isso aqui 💅
+| muito bom seu readme
+|-- Laura>
